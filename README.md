@@ -1,2 +1,0 @@
-HỌ VÀ TÊN :VŨ NGỌC TUẤN
-MSV: 222631155
